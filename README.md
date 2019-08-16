@@ -9,3 +9,4 @@ Mahim, or Mahikawati as it was known, was the capital of Raja Bhimdev, who reign
 He built a palace and a court of justice in Prabhadevi, as well as the first Babulnath temple.
 Makhdoom Ali Mahimi Shafi'i (1372–1431 A.D) was a saint and scholar of international repute.
 Baba falooda is well known for its softies, Juices, Ice creams, etc.
+Mahimi urus is also celebrated.
